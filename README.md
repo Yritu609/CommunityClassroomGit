@@ -1,1 +1,1 @@
-Ritu Yadav says that this commi=ujity is amazing
+Ritu Yadav says that this community is amazing
